@@ -1,4 +1,4 @@
-# 
+# Nouveau DaVinci Resolve pour PC plugins est le meilleur DaVinci Resolve pour PC plugins avec animation par images clés et calques 3D. Sécurisé, fiable et optimisé pour des
 
 
 
